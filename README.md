@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ali2562009
-- 👀 I’m interested in running,cand any thing related to technology
+- 👀 I’m interested in running,can do any thing related to technology
 - 🌱 I’m currently learning basics of programing
 - 💞️ I’m looking to collaborate on running and studing programing
 - 📫 How to reach me am livin in cairo in egypt
